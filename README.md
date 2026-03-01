@@ -123,8 +123,8 @@ healthcare-dashboard/
 
 ## 👤 Auteur
 
-**Votre Nom**
-🔗 [LinkedIn](https://www.linkedin.com/in/votre-profil)
+**KHAZEM TAREK**
+🔗 [https://www.linkedin.com/in/tarek-khazem-43901139a/)
 
 ---
 
